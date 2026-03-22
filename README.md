@@ -50,5 +50,7 @@ Currently building practical analytics projects and open to remote opportunities
 ## Contact
 
 LinkedIn: https://www.linkedin.com/in/sujagomathy
+
 Location: United States
+
 Open to Remote Roles
